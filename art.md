@@ -10,7 +10,6 @@
 | Aleksandr Menukhov visual artist (RUS)                 |        |
 | August Black Radio artist (USA)                        |        |
 | Azahara Ubera dancer, hybrid artist(ESP)               |        |
-| Caterina Moroni performing artist (ITA)                |        |
 | Claire Ducene visual artist (BEL)                      |        |
 | Cristiano Siri dancer performer (ITA)                  |        |
 | Emmanuel Ndefo dancer (NGA)                            |        |
