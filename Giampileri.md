@@ -1,0 +1,7 @@
+Giampilieri è un borgo di 1200 anime a circa 20 km dal centro di Messina. Il borgo e si divide in due frazioni: Giampilieri Superiore e Giampilieri Marina.  Trasformatorio ha avuto come spazio di iterazione e azione il vecchio borgo di Giampilieri Superiore.  Poco certe sono le informazione sulle origini di questo antico insediamento umano, certamente è stata una comunità florida e opulenta che ha toccato anche 2000 anime tra XIX e XX secolo, quando il commercio degli agrumi si rivelò un’attività particolarmente redditizia per i suoi abitanti.
+Oggi Giampilieri è noto soprattutto per la tremenda alluvione che nel 2009 causò 34 morti nell'area e inflisse gravissimi danne all’antico abitato modificandone per sempre l’aspetto.
+Attualmente Giampilieri è diviso a metà da un grande canale in cemento armato che dalla sommità del crinale su cui è adagiato il borgo scende con diversi salti fino alla piazza del bar connettendosi al torrente che attraversa la valle.
+
+L’enorme opera realizzata dalla Protezione Civile per prevenire frane e smottamenti causate dalle piogge ha come “calcificato” la ferita inferta dalla terribile alluvione spaccando Giampilieri in due metà. Le superfici pallide e brutali della struttura da una parte sembrano erigere una soglia sepolcrale sul corpo vivo del paese, ma d’altra suggeriscono usi assolutamente innovativi e divertenti in grado di ribaltare la spietata formula funzionalista dell’opera ingegneristica.
+
+(Mose' Previti)
