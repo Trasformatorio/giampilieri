@@ -23,3 +23,6 @@ At the smae time a map exists with data from 2018, hand populated by us:
 
 https://drive.google.com/open?id=188UHogLc7El47pc0eF01PnDY2J2mluHi&usp=sharing
 it can be used/updated/ etc
+
+
+- Fatta demo a Simona e Mose' l'11 marzo (fredd)
