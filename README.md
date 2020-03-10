@@ -19,7 +19,7 @@ https://www.openstreetmap.org/?mlat=38.06919&mlon=15.46891#map=18/38.06919/15.46
 
 <img src="/home/fredd/develop/giampilieri/img/map.png" alt="map" style="zoom:80%;" />
 
-At the smae time a map exists with data from 2018, hand populated by us:
+At the same time a map exists with data from 2018, hand populated by us:
 
 https://drive.google.com/open?id=188UHogLc7El47pc0eF01PnDY2J2mluHi&usp=sharing
 it can be used/updated/ etc
